@@ -1,3 +1,3 @@
 # MakeupNews
 
-Makeup guidances available here!
+Makeup guidances available here! Lipsticks, eyeshadows, everything!!
